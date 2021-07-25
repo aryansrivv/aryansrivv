@@ -12,8 +12,8 @@
     Cryptography
     
 ### Contact me at :
-Linkedln - [Aryan Srivastava](linkedin.com/in/aryan-srivastava-8782ba171) <br/>
-Email - [Aryan Srivastava](aryansrivastava103@gmail.com) <br/>
+Linkedln - [Aryan Srivastava](https://www.linkedin.com/in/aryan-srivastava-8782ba171?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BfSzqyNsvQtinpbPnds39wA%3D%3D) <br/>
+Email - `aryansrivastava103@gmail.com` <br/>
 Facebook - [Aryan Srivastava](https://web.facebook.com/aryansrivv/) <br/>
 
 
